@@ -46,5 +46,5 @@ Technical Areas
 
 ## Contact
 
-Email: Hamzazniber15@gmail.com  
+Email: Hamza.Zniber@proton.me 
 LinkedIn: Hamza Zniber
